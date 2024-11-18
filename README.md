@@ -1,5 +1,7 @@
 ![tumblr_fc380b779d75030f807f0bd27504b36c_b4f7b0af_500](https://github.com/user-attachments/assets/37b4875b-4786-4ff8-b792-d466837275c2)
 
+![](https://komarev.com/ghpvc/?username=tamagotchiuni&color=blueviolet)
+
 **thinking about getting a tamagotchi? i'm your best guide!** ![tumblr_df2c6db55946d4f317a400018d960525_736218fc_75](https://github.com/user-attachments/assets/8687dac2-090c-412d-9a63-0ee5388ab258)
 
 
@@ -7,8 +9,18 @@
 
 **don't be afraid to ask me any inquiry about the tamagotchi virtual pet toys!** ![tumblr_2035006d7f6e1caf90aa19c195839f62_d9c2a1a8_75](https://github.com/user-attachments/assets/05ac8767-7579-43ba-a033-2ee86570ef90)
 
+**i am also a major Yu-Gi-Oh! fan! mostly of the anime, specifcally DM-ARC-V thought only finished DM and GX! ![d4yifjs-7577fa9b-c790-4527-8672-d9132e716720](https://github.com/user-attachments/assets/3de1b383-ecd2-4b16-afd0-76817e0f89b4)
+
 
 ![Mimitchi_sprite_CDROM](https://github.com/user-attachments/assets/8125a496-7acd-4941-a46a-1d8e21c39f1f) ![MimitchiSprCDROM](https://github.com/user-attachments/assets/082948c4-1382-4064-898e-02a7a780ce25)   ![IDLMimitchiCloseup](https://github.com/user-attachments/assets/36ecad6e-7ccb-4d24-8021-258c41956a40) ![MimitchiCreativeJob](https://github.com/user-attachments/assets/d98f904e-6166-4d94-8d55-c92eb6ec69cc)![MimitchiPerformanceJob](https://github.com/user-attachments/assets/fe2c1a9d-08ab-4c88-a5db-7da0ba5d010a)![MimitchiCookJob](https://github.com/user-attachments/assets/9f6fce8b-9d89-45c8-9faa-5e518c322970)![Gobupyon_Uni_sprite](https://github.com/user-attachments/assets/ff4a2561-b825-4250-80a5-0359ffbe5b43)![Pyonderella_Uni_sprite](https://github.com/user-attachments/assets/0082b122-823b-4a9c-8c7c-6bc031ee197c)
+
+![d4nfe02-6c15885c-5651-4ed2-bb4a-d37c3cdabd0a](https://github.com/user-attachments/assets/d13db137-dc1d-4c7f-bbdc-798271fb4029)
+![d4it9dk-255e66ab-e24f-419c-823c-149ef39775ac](https://github.com/user-attachments/assets/663d2299-92c9-4393-bafc-89424b16faf0)![d5xxc2a-c64547aa-5e9f-4863-b19d-783238b8919c](https://github.com/user-attachments/assets/79867b8c-d0dd-4571-bf52-e3e6d18f7cb7)![d2iw0kp-f3b4a789-0b74-4b9e-abc3-1ace26d0865f](https://github.com/user-attachments/assets/2ce964f2-28ae-480f-9958-1f9aca906d96)![d2qp8pw-94e3b5a6-4aef-4e13-a59c-7ead19c7ca45](https://github.com/user-attachments/assets/e894b511-2977-4545-b0a0-3b9ae43aae1b)![d2tc8i8-ddc0ea51-7a16-45ec-a090-586910a29b4a](https://github.com/user-attachments/assets/31871a90-ec35-4e27-a154-21d99ec44836)
+
+
+
+
+
 
 
 
@@ -17,6 +29,8 @@
 
 
 ![d52hz82-d36e5841-2786-4f16-9c9c-06c73d05f9cc](https://github.com/user-attachments/assets/d93512e8-dee3-4385-a7b8-3640b0707d5d)![dv5gor-82d32836-69ce-4df4-9006-03cec8a27e49](https://github.com/user-attachments/assets/79c68944-dd7c-4946-8198-abcb9944a361)![tamagotchi_stamp_by_sky_yoshi_d219a2h-fullview](https://github.com/user-attachments/assets/3dbd6108-4d51-4cc3-bb81-d199078b2963)![ddhzpdm-df414a6b-f97b-40e2-bec7-716a0081028c](https://github.com/user-attachments/assets/308b9706-6ab5-459b-b6b4-cccfcb3ddf57)
+
+
 
 
 
@@ -31,6 +45,8 @@ https://www.youtube.com/watch?v=xWX3Tm8dSrQ
 https://www.youtube.com/watch?v=x3WKnbDA8fs 
 
 
+
+
 ![tumblr_61c66045cfd63150ccce08e0f34e55c0_a618b7b4_540](https://github.com/user-attachments/assets/79c82abd-34f1-43ba-ba9e-89697dd595e3)
 
 ![tumblr_bbb35308d4b4bc6bd534542ecfd57fe5_4b6e4ad5_250](https://github.com/user-attachments/assets/35f95491-c299-44a3-b748-7d696afc351f)![tumblr_b06d9105b4b85af7ca39a6030a3759f9_da348f78_250](https://github.com/user-attachments/assets/6f7e9441-c60a-4736-9322-d6deddcb38d6)
@@ -41,3 +57,11 @@ https://www.youtube.com/watch?v=x3WKnbDA8fs
 
 
 ![tumblr_fc380b779d75030f807f0bd27504b36c_b4f7b0af_500](https://github.com/user-attachments/assets/ffdd1c77-94d2-4f7e-aba4-183148722f0a)
+
+
+**WHAT DID 5 YEAR OLD ME SEE IN HIM?????? they shouldve put me on antipsychotics**
+
+![manjoume_collage_wallpaper_by_manathedmg_d5ka2g6-fullview](https://github.com/user-attachments/assets/36e37405-7ecc-4a55-9775-264301fad622)
+![chazz_princeton_desktop_by_bilashakala_dj46mi-fullview](https://github.com/user-attachments/assets/dbfaf1fa-df3a-49cb-b3f2-abe53d7412c0)
+
+

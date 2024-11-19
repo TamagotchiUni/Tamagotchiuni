@@ -1,8 +1,11 @@
-![tumblr_fc380b779d75030f807f0bd27504b36c_b4f7b0af_500](https://github.com/user-attachments/assets/37b4875b-4786-4ff8-b792-d466837275c2)
+![tumblr_fc380b779d75030f807f0bd27504b36c_b4f7b0af_500](https://github.com/user-attachments/assets/37b4875b-4786-4ff8-b792-d466837275c2)![tumblr_fc380b779d75030f807f0bd27504b36c_b4f7b0af_500](https://github.com/user-attachments/assets/37b4875b-4786-4ff8-b792-d466837275c2)
 
-![](https://komarev.com/ghpvc/?username=tamagotchiuni&color=blueviolet)
 
-![chazz-yugioh](https://github.com/user-attachments/assets/64ea6c1e-22d6-4a33-9248-6bc6e7c0d57b)
+![](https://komarev.com/ghpvc/?username=tamagotchiuni&color=lightgrey)
+
+![chazz-princeton-yugioh-gx](https://github.com/user-attachments/assets/73a471c1-c1d7-4500-9374-ceb44dd40414)
+
+
 
 
 **thinking about getting a tamagotchi? i'm your best guide!** ![tumblr_df2c6db55946d4f317a400018d960525_736218fc_75](https://github.com/user-attachments/assets/8687dac2-090c-412d-9a63-0ee5388ab258)
@@ -34,7 +37,9 @@
 ![d52hz82-d36e5841-2786-4f16-9c9c-06c73d05f9cc](https://github.com/user-attachments/assets/d93512e8-dee3-4385-a7b8-3640b0707d5d)![dv5gor-82d32836-69ce-4df4-9006-03cec8a27e49](https://github.com/user-attachments/assets/79c68944-dd7c-4946-8198-abcb9944a361)![tamagotchi_stamp_by_sky_yoshi_d219a2h-fullview](https://github.com/user-attachments/assets/3dbd6108-4d51-4cc3-bb81-d199078b2963)![ddhzpdm-df414a6b-f97b-40e2-bec7-716a0081028c](https://github.com/user-attachments/assets/308b9706-6ab5-459b-b6b4-cccfcb3ddf57)
 
 
+![chazz-yugioh](https://github.com/user-attachments/assets/64ea6c1e-22d6-4a33-9248-6bc6e7c0d57b)
 
+![tumblr_fc380b779d75030f807f0bd27504b36c_b4f7b0af_500](https://github.com/user-attachments/assets/37b4875b-4786-4ff8-b792-d466837275c2)![tumblr_fc380b779d75030f807f0bd27504b36c_b4f7b0af_500](https://github.com/user-attachments/assets/37b4875b-4786-4ff8-b792-d466837275c2)
 
 
 **must WATCH!**
@@ -59,19 +64,28 @@ https://www.youtube.com/watch?v=x3WKnbDA8fs
 
 
 
-![tumblr_fc380b779d75030f807f0bd27504b36c_b4f7b0af_500](https://github.com/user-attachments/assets/ffdd1c77-94d2-4f7e-aba4-183148722f0a)
+![tumblr_fc380b779d75030f807f0bd27504b36c_b4f7b0af_500](https://github.com/user-attachments/assets/ffdd1c77-94d2-4f7e-aba4-183148722f0a)![tumblr_fc380b779d75030f807f0bd27504b36c_b4f7b0af_500](https://github.com/user-attachments/assets/37b4875b-4786-4ff8-b792-d466837275c2)
 
-# ***you are not immune to queer baiting***
 
-![chazz-orb](https://github.com/user-attachments/assets/feebc422-1508-4fd5-b0e4-45f054d465ef)
-![chazz-orb](https://github.com/user-attachments/assets/6d2379f8-0af6-40d7-80f4-a64cf1521f88)![chazz-princeton-yugioh-gx](https://github.com/user-attachments/assets/73a471c1-c1d7-4500-9374-ceb44dd40414)
+# ***you are not immune to*** ![chazz-orb](https://github.com/user-attachments/assets/feebc422-1508-4fd5-b0e4-45f054d465ef)
 
-![chazz-someone-stole-my-knees](https://github.com/user-attachments/assets/0bec076d-5089-4e1c-b988-fba440f25504)
 
+
+
+![tumblr_p9yoi9cziU1uwsbomo1_540](https://github.com/user-attachments/assets/ee54188d-634b-46b8-bd80-d1580cd15ae8)
+
+![tumblr_p9yoa1VsUQ1uwsbomo1_540](https://github.com/user-attachments/assets/e95972f6-9dd5-40a0-bc30-daf5d93b0125)
+
+
+
+![chazz-jaden](https://github.com/user-attachments/assets/efa62807-a8bd-457a-9f9a-57cffe800420)
 
 ![chazz-princeton-yugioh-gx](https://github.com/user-attachments/assets/4bd165a6-39f1-4578-a2d6-6b5e2e43c562)
-![chazz-jaden](https://github.com/user-attachments/assets/efa62807-a8bd-457a-9f9a-57cffe800420)
-![thechazzening-chazz](https://github.com/user-attachments/assets/a1c813e5-fe27-46e7-b860-ed327d356d5f)
+
+
+![tumblr_fc380b779d75030f807f0bd27504b36c_b4f7b0af_500](https://github.com/user-attachments/assets/37b4875b-4786-4ff8-b792-d466837275c2)![tumblr_fc380b779d75030f807f0bd27504b36c_b4f7b0af_500](https://github.com/user-attachments/assets/37b4875b-4786-4ff8-b792-d466837275c2)
+
+
 
 
 

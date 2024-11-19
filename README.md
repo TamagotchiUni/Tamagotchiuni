@@ -2,6 +2,9 @@
 
 ![](https://komarev.com/ghpvc/?username=tamagotchiuni&color=blueviolet)
 
+![chazz-yugioh](https://github.com/user-attachments/assets/64ea6c1e-22d6-4a33-9248-6bc6e7c0d57b)
+
+
 **thinking about getting a tamagotchi? i'm your best guide!** ![tumblr_df2c6db55946d4f317a400018d960525_736218fc_75](https://github.com/user-attachments/assets/8687dac2-090c-412d-9a63-0ee5388ab258)
 
 
@@ -58,10 +61,19 @@ https://www.youtube.com/watch?v=x3WKnbDA8fs
 
 ![tumblr_fc380b779d75030f807f0bd27504b36c_b4f7b0af_500](https://github.com/user-attachments/assets/ffdd1c77-94d2-4f7e-aba4-183148722f0a)
 
+# ***you are not immune to queer baiting***
 
-**WHAT DID 5 YEAR OLD ME SEE IN HIM?????? they shouldve put me on antipsychotics**
+![chazz-orb](https://github.com/user-attachments/assets/feebc422-1508-4fd5-b0e4-45f054d465ef)
+![chazz-orb](https://github.com/user-attachments/assets/6d2379f8-0af6-40d7-80f4-a64cf1521f88)![chazz-princeton-yugioh-gx](https://github.com/user-attachments/assets/73a471c1-c1d7-4500-9374-ceb44dd40414)
 
-![manjoume_collage_wallpaper_by_manathedmg_d5ka2g6-fullview](https://github.com/user-attachments/assets/36e37405-7ecc-4a55-9775-264301fad622)
-![chazz_princeton_desktop_by_bilashakala_dj46mi-fullview](https://github.com/user-attachments/assets/dbfaf1fa-df3a-49cb-b3f2-abe53d7412c0)
+![chazz-someone-stole-my-knees](https://github.com/user-attachments/assets/0bec076d-5089-4e1c-b988-fba440f25504)
+
+
+![chazz-princeton-yugioh-gx](https://github.com/user-attachments/assets/4bd165a6-39f1-4578-a2d6-6b5e2e43c562)
+![chazz-jaden](https://github.com/user-attachments/assets/efa62807-a8bd-457a-9f9a-57cffe800420)
+![thechazzening-chazz](https://github.com/user-attachments/assets/a1c813e5-fe27-46e7-b860-ed327d356d5f)
+
+
+
 
 

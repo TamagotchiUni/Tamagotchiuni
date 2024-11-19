@@ -9,7 +9,7 @@
 
 **don't be afraid to ask me any inquiry about the tamagotchi virtual pet toys!** ![tumblr_2035006d7f6e1caf90aa19c195839f62_d9c2a1a8_75](https://github.com/user-attachments/assets/05ac8767-7579-43ba-a033-2ee86570ef90)
 
-**i am also a major Yu-Gi-Oh! fan! mostly of the anime, specifcally DM-ARC-V thought only finished DM and GX!** ![d4yifjs-7577fa9b-c790-4527-8672-d9132e716720](https://github.com/user-attachments/assets/3de1b383-ecd2-4b16-afd0-76817e0f89b4)
+**i am also a major Yu-Gi-Oh! fan! mostly of the anime, specifcally DM-ARC-V though only finished DM and GX! am a ygo DL 2018 world championship qualifer as well!** ![d4yifjs-7577fa9b-c790-4527-8672-d9132e716720](https://github.com/user-attachments/assets/3de1b383-ecd2-4b16-afd0-76817e0f89b4)
 
 
 ![Mimitchi_sprite_CDROM](https://github.com/user-attachments/assets/8125a496-7acd-4941-a46a-1d8e21c39f1f) ![MimitchiSprCDROM](https://github.com/user-attachments/assets/082948c4-1382-4064-898e-02a7a780ce25)   ![IDLMimitchiCloseup](https://github.com/user-attachments/assets/36ecad6e-7ccb-4d24-8021-258c41956a40) ![MimitchiCreativeJob](https://github.com/user-attachments/assets/d98f904e-6166-4d94-8d55-c92eb6ec69cc)![MimitchiPerformanceJob](https://github.com/user-attachments/assets/fe2c1a9d-08ab-4c88-a5db-7da0ba5d010a)![MimitchiCookJob](https://github.com/user-attachments/assets/9f6fce8b-9d89-45c8-9faa-5e518c322970)![Gobupyon_Uni_sprite](https://github.com/user-attachments/assets/ff4a2561-b825-4250-80a5-0359ffbe5b43)![Pyonderella_Uni_sprite](https://github.com/user-attachments/assets/0082b122-823b-4a9c-8c7c-6bc031ee197c)

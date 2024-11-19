@@ -40,8 +40,11 @@
 ![chazz-yugioh](https://github.com/user-attachments/assets/64ea6c1e-22d6-4a33-9248-6bc6e7c0d57b)
 
 ![tumblr_fc380b779d75030f807f0bd27504b36c_b4f7b0af_500](https://github.com/user-attachments/assets/37b4875b-4786-4ff8-b792-d466837275c2)
+
+
 **must WATCH!**
-![dd67afj-3a0c3c10-8731-4785-91ab-a9678dd89b59](https://github.com/user-attachments/assets/08866660-6cb4-4c07-b543-82407d82238b) ![tumblr_5bc1e2f98984d6998c30cafcd1d0b1c9_bf4c46a3_75](https://github.com/user-attachments/assets/ae33ebda-2bd9-42a8-9676-cc92fdfaeffc)![tumblr_0c51f15f29031976a142f0576f91e22d_f0227036_75](https://github.com/user-attachments/assets/ff1990fe-da2c-41a6-ae38-62b5f2e1503d)![tumblr_b8a2538230adc5875dde1ff525acebd9_80a5e827_75](https://github.com/user-attachments/assets/fe77bd4e-d44c-4fc6-8459-71e4e7ffa9c5)
+![dd67afj-3a0c3c10-8731-4785-91ab-a9678dd89b59](https://github.com/user-attachments/assets/08866660-6cb4-4c07-b543-82407d82238b)
+ ![tumblr_5bc1e2f98984d6998c30cafcd1d0b1c9_bf4c46a3_75](https://github.com/user-attachments/assets/ae33ebda-2bd9-42a8-9676-cc92fdfaeffc)![tumblr_0c51f15f29031976a142f0576f91e22d_f0227036_75](https://github.com/user-attachments/assets/ff1990fe-da2c-41a6-ae38-62b5f2e1503d)![tumblr_b8a2538230adc5875dde1ff525acebd9_80a5e827_75](https://github.com/user-attachments/assets/fe77bd4e-d44c-4fc6-8459-71e4e7ffa9c5)
 
 
 https://www.youtube.com/watch?v=9BfLQ2L6Khw

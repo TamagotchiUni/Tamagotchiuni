@@ -1,5 +1,7 @@
 ![tumblr_fc380b779d75030f807f0bd27504b36c_b4f7b0af_500](https://github.com/user-attachments/assets/37b4875b-4786-4ff8-b792-d466837275c2)
-![](https://komarev.com/ghpvc/?username=tamagotchiuni&color=lightgrey)
+
+
+![](https://komarev.com/ghpvc/?username=tamagotchiuni&color=red)
 
 ![chazz-princeton-yugioh-gx](https://github.com/user-attachments/assets/73a471c1-c1d7-4500-9374-ceb44dd40414)
 

@@ -36,6 +36,9 @@
 
 ![d52hz82-d36e5841-2786-4f16-9c9c-06c73d05f9cc](https://github.com/user-attachments/assets/d93512e8-dee3-4385-a7b8-3640b0707d5d)![dv5gor-82d32836-69ce-4df4-9006-03cec8a27e49](https://github.com/user-attachments/assets/79c68944-dd7c-4946-8198-abcb9944a361)![tamagotchi_stamp_by_sky_yoshi_d219a2h-fullview](https://github.com/user-attachments/assets/3dbd6108-4d51-4cc3-bb81-d199078b2963)![ddhzpdm-df414a6b-f97b-40e2-bec7-716a0081028c](https://github.com/user-attachments/assets/308b9706-6ab5-459b-b6b4-cccfcb3ddf57)
 
+### LET ME DRAW ON YOUR STRAW PAGE !!!
+
+![image](https://github.com/user-attachments/assets/1c8ea503-85e6-4826-86ef-b516ace66638)
 
 ![chazz-yugioh](https://github.com/user-attachments/assets/64ea6c1e-22d6-4a33-9248-6bc6e7c0d57b)
 

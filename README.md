@@ -49,6 +49,9 @@
 ![dd67afj-3a0c3c10-8731-4785-91ab-a9678dd89b59](https://github.com/user-attachments/assets/08866660-6cb4-4c07-b543-82407d82238b)
  ![tumblr_5bc1e2f98984d6998c30cafcd1d0b1c9_bf4c46a3_75](https://github.com/user-attachments/assets/ae33ebda-2bd9-42a8-9676-cc92fdfaeffc)![tumblr_0c51f15f29031976a142f0576f91e22d_f0227036_75](https://github.com/user-attachments/assets/ff1990fe-da2c-41a6-ae38-62b5f2e1503d)![tumblr_b8a2538230adc5875dde1ff525acebd9_80a5e827_75](https://github.com/user-attachments/assets/fe77bd4e-d44c-4fc6-8459-71e4e7ffa9c5)
 
+https://www.youtube.com/watch?v=kBsFMR94rs0&list=PL11LG2MBkzTkdVTlXJaCCj5Mnjy_Br8qR&index=14
+
+https://www.youtube.com/watch?v=MpYZ4fR2m-s&list=PL11LG2MBkzTkdVTlXJaCCj5Mnjy_Br8qR&index=4
 
 https://www.youtube.com/watch?v=9BfLQ2L6Khw
 

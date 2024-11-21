@@ -7,7 +7,6 @@
 
 
 
-
 **thinking about getting a tamagotchi? i'm your best guide!** ![tumblr_df2c6db55946d4f317a400018d960525_736218fc_75](https://github.com/user-attachments/assets/8687dac2-090c-412d-9a63-0ee5388ab258)
 
 
@@ -15,7 +14,7 @@
 
 **don't be afraid to ask me any inquiry about the tamagotchi virtual pet toys!** ![tumblr_2035006d7f6e1caf90aa19c195839f62_d9c2a1a8_75](https://github.com/user-attachments/assets/05ac8767-7579-43ba-a033-2ee86570ef90)
 
-**i am also a major Yu-Gi-Oh! fan! mostly of the anime, specifcally DM-ARC-V though only finished DM and GX! am a ygo DL 2018 world championship qualifer as well!** ![d4yifjs-7577fa9b-c790-4527-8672-d9132e716720](https://github.com/user-attachments/assets/3de1b383-ecd2-4b16-afd0-76817e0f89b4)
+**i am also a major Yu-Gi-Oh! fan! mostly of the anime, specifcally DM-ARC-V though only finished DM and GX! am a ygo DL 2018 world championship qualifer and 2024 KC cup second stage qualifier as well!** ![d4yifjs-7577fa9b-c790-4527-8672-d9132e716720](https://github.com/user-attachments/assets/3de1b383-ecd2-4b16-afd0-76817e0f89b4)
 
 
 ![Mimitchi_sprite_CDROM](https://github.com/user-attachments/assets/8125a496-7acd-4941-a46a-1d8e21c39f1f) ![MimitchiSprCDROM](https://github.com/user-attachments/assets/082948c4-1382-4064-898e-02a7a780ce25)   ![IDLMimitchiCloseup](https://github.com/user-attachments/assets/36ecad6e-7ccb-4d24-8021-258c41956a40) ![MimitchiCreativeJob](https://github.com/user-attachments/assets/d98f904e-6166-4d94-8d55-c92eb6ec69cc)![MimitchiPerformanceJob](https://github.com/user-attachments/assets/fe2c1a9d-08ab-4c88-a5db-7da0ba5d010a)![MimitchiCookJob](https://github.com/user-attachments/assets/9f6fce8b-9d89-45c8-9faa-5e518c322970)![Gobupyon_Uni_sprite](https://github.com/user-attachments/assets/ff4a2561-b825-4250-80a5-0359ffbe5b43)![Pyonderella_Uni_sprite](https://github.com/user-attachments/assets/0082b122-823b-4a9c-8c7c-6bc031ee197c)
@@ -49,7 +48,7 @@
 ![dd67afj-3a0c3c10-8731-4785-91ab-a9678dd89b59](https://github.com/user-attachments/assets/08866660-6cb4-4c07-b543-82407d82238b)
  ![tumblr_5bc1e2f98984d6998c30cafcd1d0b1c9_bf4c46a3_75](https://github.com/user-attachments/assets/ae33ebda-2bd9-42a8-9676-cc92fdfaeffc)![tumblr_0c51f15f29031976a142f0576f91e22d_f0227036_75](https://github.com/user-attachments/assets/ff1990fe-da2c-41a6-ae38-62b5f2e1503d)![tumblr_b8a2538230adc5875dde1ff525acebd9_80a5e827_75](https://github.com/user-attachments/assets/fe77bd4e-d44c-4fc6-8459-71e4e7ffa9c5)
 
-https://www.youtube.com/watch?v=kBsFMR94rs0&list=PL11LG2MBkzTkdVTlXJaCCj5Mnjy_Br8qR&index=14
+[https://www.youtube.com/watch?v=kBsFMR94rs0&list=PL11LG2MBkzTkdVTlXJaCCj5Mnjy_Br8qR&index=14](https://youtu.be/kBsFMR94rs0?si=0dKki-qRxK0MJKFE)
 
 https://www.youtube.com/watch?v=MpYZ4fR2m-s&list=PL11LG2MBkzTkdVTlXJaCCj5Mnjy_Br8qR&index=4
 

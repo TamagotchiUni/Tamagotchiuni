@@ -17,10 +17,28 @@
 **i am also a major Yu-Gi-Oh! fan! mostly of the anime, specifcally DM-ARC-V though only finished DM and GX! am a ygo DL 2018 world championship qualifer and 2024 KC cup second stage qualifier as well!** ![d4yifjs-7577fa9b-c790-4527-8672-d9132e716720](https://github.com/user-attachments/assets/3de1b383-ecd2-4b16-afd0-76817e0f89b4)
 
 
+![dfej9hu-3e92d6d4-7855-4686-b37f-70856a68c4fb](https://github.com/user-attachments/assets/2bab76e6-b3bd-4dec-ba9c-bec97569b638)
+
+(*paranoid easily, any behavior i'm not used to will result in a temporary hide, if not then i apologize!*)
+
+![dfej9hu-3e92d6d4-7855-4686-b37f-70856a68c4fb](https://github.com/user-attachments/assets/23acc3dd-5b5f-420f-9b3b-56f091d5fd1e)
+
 ![Mimitchi_sprite_CDROM](https://github.com/user-attachments/assets/8125a496-7acd-4941-a46a-1d8e21c39f1f) ![MimitchiSprCDROM](https://github.com/user-attachments/assets/082948c4-1382-4064-898e-02a7a780ce25)   ![IDLMimitchiCloseup](https://github.com/user-attachments/assets/36ecad6e-7ccb-4d24-8021-258c41956a40) ![MimitchiCreativeJob](https://github.com/user-attachments/assets/d98f904e-6166-4d94-8d55-c92eb6ec69cc)![MimitchiPerformanceJob](https://github.com/user-attachments/assets/fe2c1a9d-08ab-4c88-a5db-7da0ba5d010a)![MimitchiCookJob](https://github.com/user-attachments/assets/9f6fce8b-9d89-45c8-9faa-5e518c322970)![Gobupyon_Uni_sprite](https://github.com/user-attachments/assets/ff4a2561-b825-4250-80a5-0359ffbe5b43)![Pyonderella_Uni_sprite](https://github.com/user-attachments/assets/0082b122-823b-4a9c-8c7c-6bc031ee197c)
 
 ![d4nfe02-6c15885c-5651-4ed2-bb4a-d37c3cdabd0a](https://github.com/user-attachments/assets/d13db137-dc1d-4c7f-bbdc-798271fb4029)
-![d4it9dk-255e66ab-e24f-419c-823c-149ef39775ac](https://github.com/user-attachments/assets/663d2299-92c9-4393-bafc-89424b16faf0)![d5xxc2a-c64547aa-5e9f-4863-b19d-783238b8919c](https://github.com/user-attachments/assets/79867b8c-d0dd-4571-bf52-e3e6d18f7cb7)![d2iw0kp-f3b4a789-0b74-4b9e-abc3-1ace26d0865f](https://github.com/user-attachments/assets/2ce964f2-28ae-480f-9958-1f9aca906d96)![d2qp8pw-94e3b5a6-4aef-4e13-a59c-7ead19c7ca45](https://github.com/user-attachments/assets/e894b511-2977-4545-b0a0-3b9ae43aae1b)![d2tc8i8-ddc0ea51-7a16-45ec-a090-586910a29b4a](https://github.com/user-attachments/assets/31871a90-ec35-4e27-a154-21d99ec44836)
+![d4it9dk-255e66ab-e24f-419c-823c-149ef39775ac](https://github.com/user-attachments/assets/663d2299-92c9-4393-bafc-89424b16faf0)
+![d18njq3-3211d719-9e9e-42cd-8b26-b0e006900688](https://github.com/user-attachments/assets/7db754af-704d-44a7-ab3b-701df8e2938e)
+
+![d4it92e-bdb69a4c-c02a-4052-b7fb-d78778bed768](https://github.com/user-attachments/assets/fa9a8bd7-6cca-478c-96e6-96184fc6dd26)
+![d18espu-cd5e157a-3da7-4aef-9f62-92a172b57633](https://github.com/user-attachments/assets/16445171-2bea-499e-9ab6-d47bf297fce1)![uke_johan_stamp_by_crystaldragon123_d4cpe2c-fullview](https://github.com/user-attachments/assets/1eb885e0-fc7e-4690-8685-93c8d5ab2240)
+
+![d3b7zau-eb124592-90e4-46a9-9129-6332132a11d6](https://github.com/user-attachments/assets/f581d4d6-068c-4c0d-96f4-428dadfc8e11)
+![d2iw0kp-f3b4a789-0b74-4b9e-abc3-1ace26d0865f](https://github.com/user-attachments/assets/2ce964f2-28ae-480f-9958-1f9aca906d96)![d18esmr-de56b34e-8b92-4754-89fe-39d6c04e6ffa](https://github.com/user-attachments/assets/03ef6bf6-98a1-4c9a-89b3-b0451384e8af)
+
+![d19feyi-507deb05-76e7-454d-b4b2-3288ad6a0bf9](https://github.com/user-attachments/assets/a3575a19-0751-483e-848f-b883a6330353)![d9vqnda-be18207f-4fc9-40a0-be6f-4cedcb9fe764](https://github.com/user-attachments/assets/a3bda44d-c246-4d8c-87a3-d26f3fd58678)![d4it9la-123fcf6d-fd78-4579-b159-5b1adff7e660](https://github.com/user-attachments/assets/66421925-be92-4f70-a196-694e355156d5)
+![d1b2qq4-e7cdc27b-9edb-4a21-883c-7991e5665b59](https://github.com/user-attachments/assets/14cff023-690d-487b-be18-8cca243fc943)![d4it9is-7b1bd40f-2ef9-4cb1-afa8-dde64ce61f14](https://github.com/user-attachments/assets/321c024f-f3c0-400e-865f-600b877f83bd)
+![d192nw4-17101dea-d769-46b2-bf97-1cf16a74a23b](https://github.com/user-attachments/assets/be069ba0-03c9-4ddf-a303-071df21d8eab)
+
 
 
 

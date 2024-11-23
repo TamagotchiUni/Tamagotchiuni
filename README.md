@@ -19,7 +19,7 @@
 
 ![dfej9hu-3e92d6d4-7855-4686-b37f-70856a68c4fb](https://github.com/user-attachments/assets/2bab76e6-b3bd-4dec-ba9c-bec97569b638)
 
-SIGN MY ATABOOK! https://tamagotchi.atabook.org/
+SIGN MY ATABOOK! [https://tamagotchi.atabook.org/](https://chazz.atabook.org/)
 
 ![dfej9hu-3e92d6d4-7855-4686-b37f-70856a68c4fb](https://github.com/user-attachments/assets/23acc3dd-5b5f-420f-9b3b-56f091d5fd1e)
 

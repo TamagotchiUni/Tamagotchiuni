@@ -91,18 +91,15 @@ https://www.youtube.com/watch?v=x3WKnbDA8fs
 
 ![tumblr_fc380b779d75030f807f0bd27504b36c_b4f7b0af_500](https://github.com/user-attachments/assets/ffdd1c77-94d2-4f7e-aba4-183148722f0a)
 
-# ***you are not immune to*** ![chazz-orb](https://github.com/user-attachments/assets/feebc422-1508-4fd5-b0e4-45f054d465ef)
+# ***ART SHOWCASEEEEE!*** ![chazz-orb](https://github.com/user-attachments/assets/feebc422-1508-4fd5-b0e4-45f054d465ef)
 
 
 
-
-![tumblr_p9yoi9cziU1uwsbomo1_540](https://github.com/user-attachments/assets/ee54188d-634b-46b8-bd80-d1580cd15ae8)
-
-![tumblr_p9yoa1VsUQ1uwsbomo1_540](https://github.com/user-attachments/assets/e95972f6-9dd5-40a0-bc30-daf5d93b0125)
+![image](https://github.com/user-attachments/assets/30a4b9ef-ad05-41f2-98dc-e722390db09c)
+![image](https://github.com/user-attachments/assets/ce2926ad-b42e-465b-a833-f6c4354ca966)![image](https://github.com/user-attachments/assets/ab9eb2d1-dded-4430-b714-698dff1391f7)
 
 
 
-![chazz-jaden](https://github.com/user-attachments/assets/efa62807-a8bd-457a-9f9a-57cffe800420)
 
 ![chazz-princeton-yugioh-gx](https://github.com/user-attachments/assets/4bd165a6-39f1-4578-a2d6-6b5e2e43c562)
 

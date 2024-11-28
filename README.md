@@ -2,6 +2,7 @@
 
 ![tumblr_471f0ffb929602b7112e6c9e9b5a3dd5_75af2a26_500](https://github.com/user-attachments/assets/f7c7998f-24a0-4655-8ae2-0d14c05f863e)
 
+
 ![tumblr_3ffbe4358ffce2b4de5dcbfc79802c98_57713a34_400](https://github.com/user-attachments/assets/19df7619-db56-42f6-968d-6b424d46ff2e)
 ![](https://komarev.com/ghpvc/?username=tamagotchiuni)
 
@@ -32,10 +33,20 @@
 
 ![tumblr_9fe9795b45fe117041bc17bb5efc08f1_daafe2a3_1280](https://github.com/user-attachments/assets/8d66ca4c-63ff-4cd5-804c-5ad2047a9f1d)
 
-# *what's that? you wanna know more?*
-![tumblr_bfc11316bc885d46d0ed19b06986b0b7_6da1489a_400](https://github.com/user-attachments/assets/b051ca93-1f88-49d1-9bc6-f1a24587ab38)
+#   _*what's that? you wanna know more?*_ 
+![tumblr_9a29f709643edf412cf164c307c294c7_74b6728f_500](https://github.com/user-attachments/assets/399d0f03-20d1-41bc-b865-d65e4150f526)
 
-![Timer66](https://github.com/user-attachments/assets/148e7ff7-c8bb-4a0a-a5d1-66f63f29184b)   ![Timer6](https://github.com/user-attachments/assets/0f1b511d-c6eb-48b8-bad3-249b7079a87d)
+
+
+
+
+
+
+
+
+![Timer66](https://github.com/user-attachments/assets/148e7ff7-c8bb-4a0a-a5d1-66f63f29184b)   ![Timer6](https://github.com/user-attachments/assets/0f1b511d-c6eb-48b8-bad3-249b7079a87d) ![Timerwin](https://github.com/user-attachments/assets/0669d45c-6b77-4e54-bb74-d23c37a2cbe4)
+
+![tumblr_94f3e357653dfd93487520798d4c33fe_56c587b1_500](https://github.com/user-attachments/assets/e5808a2c-45b6-4aa9-887f-e9a3979aa4f6)
 
 
 
@@ -54,7 +65,7 @@ Yu-Gi-Oh! and Tamagotchi are my special interests, i love them very much...
 
 ..though i only like tamagotchi devices and raising/taking care of a pet aspect!
 
-if you talk to me about the tamagotchi anime, apologies but i will not be interacting ! ! 
+if you talk to me about the tamagotchi anime, apologies but i will not be interacting ! 
 also applies to yugioh too, i will not interact when you are a hardcore shipper, boring topic honestly..
 
 ![tumblr_37efa197eae6afe1720ff1bfd20d0dc5_df09a4ad_640](https://github.com/user-attachments/assets/9e5c0be4-05eb-460b-a1e5-47712ad00c67)

@@ -2,9 +2,7 @@
 
 ![tumblr_471f0ffb929602b7112e6c9e9b5a3dd5_75af2a26_500](https://github.com/user-attachments/assets/f7c7998f-24a0-4655-8ae2-0d14c05f863e)
 
-# WELCOME TO THE MINDFUCK!
 ![tumblr_3ffbe4358ffce2b4de5dcbfc79802c98_57713a34_400](https://github.com/user-attachments/assets/19df7619-db56-42f6-968d-6b424d46ff2e)
-
 ![](https://komarev.com/ghpvc/?username=tamagotchiuni)
 
 ![Timer24](https://github.com/user-attachments/assets/3055ede1-8e9f-4ad4-a406-8e78c25e8e5d)![Timer23](https://github.com/user-attachments/assets/98d33a8f-a489-4ace-9693-8abdb9111339) ![tumblr_40f1e938a0bed10d4e9d122cae7b6e0d_b4e08ad7_400](https://github.com/user-attachments/assets/23449fd1-6bb4-4495-9478-87dbfcc6a662)

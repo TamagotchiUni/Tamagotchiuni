@@ -68,8 +68,41 @@ Yu-Gi-Oh! and Tamagotchi are my special interests, i love them very much...
 if you talk to me about the tamagotchi anime, apologies but i will not be interacting ! 
 also applies to yugioh too, i will not interact when you are a hardcore shipper, boring topic honestly..
 
+
 ![tumblr_37efa197eae6afe1720ff1bfd20d0dc5_df09a4ad_640](https://github.com/user-attachments/assets/9e5c0be4-05eb-460b-a1e5-47712ad00c67)
 
+
+![tumblr_9fe9795b45fe117041bc17bb5efc08f1_daafe2a3_1280](https://github.com/user-attachments/assets/32ba7714-47e5-4363-a37f-1195dc09ece1)
+
+# WE MEANT YOU! NOT YOUR INTERESTS!
+
+![tumblr_bfc11316bc885d46d0ed19b06986b0b7_6da1489a_400](https://github.com/user-attachments/assets/af6bd473-e179-495b-838c-470ba901d1f9)
+
+
+![QUdwugz](https://github.com/user-attachments/assets/a7235d28-f1be-4172-91da-fa7ac6d6f35b)![lyJDraZ](https://github.com/user-attachments/assets/084afa6d-3862-490b-a6b5-4d3bb8b1d7f6)
+![J4gaHiE](https://github.com/user-attachments/assets/d5f36eac-bc2f-46c2-a844-2ed81428dab0)![tumblr_6090d020551a7faf0b543e5e4ba19b05_7e7d517d_250](https://github.com/user-attachments/assets/07fd7c46-7684-4c49-81e5-1b04ef15a498)
+
+
+![tumblr_f6a3bd18be335dfa3d5400ff450c5533_f0e0a8d4_400](https://github.com/user-attachments/assets/b739418f-7047-4d75-a0f5-24aef0f2fca6)
+
+
+
+ah! you meant me and not my interests? my bad!
+the name's anubis, though most friends call me by my real name!
+
+i may seem like a lazy screwup, but really i am a university majoring under the buisness department umbrella! specifcally, Managment Information Systems (MiS) 
+
+though my department is going through a change-up so soon enough i might be Buisness intellgience (Bi) (LOL) instead!
+
+i'm just a 20 year old gal with a peanut for a brain, i act immature for my age most of the time, because im weird xd!!
+
+![tumblr_7b0a7c386ec1966119f1161eed9e084f_359cac86_500](https://github.com/user-attachments/assets/ec1952ec-271e-47cd-8c41-15219f08fc48)
+
+i usually like to ramble a lot about details and trying to decipher the reasoning behind
+
+actions, it's just that buisness blood coursing through me! it helps with grinding the gears inside my brain too...
+
+if you have any questions relating to information systems or terms, i could help! though keep in mind i still am learning!
 
 ![tumblr_9fe9795b45fe117041bc17bb5efc08f1_daafe2a3_1280](https://github.com/user-attachments/assets/32ba7714-47e5-4363-a37f-1195dc09ece1)
 

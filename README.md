@@ -90,7 +90,7 @@ also applies to yugioh too, i will not interact when you are a hardcore shipper,
 ah! you meant me and not my interests? my bad!
 the name's anubis, though most friends call me by my real name!
 
-i may seem like a lazy screwup, but really i am a university majoring under the buisness department umbrella! specifcally, Managment Information Systems (MiS) 
+i may seem like a lazy screwup, but really i am a university student, fresh outta an early piloted internship program, majoring under the buisness department umbrella! specifcally, Managment Information Systems (MiS) 
 
 though my department is going through a change-up so soon enough i might be Buisness intellgience (Bi) (LOL) instead!
 

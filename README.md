@@ -56,7 +56,7 @@
 ### **my strawpage is a good way to know on a surface level!** 
 **https://tamagotch.straw.page/**
 
-*(and yes, i am nuerodivergent and have mental disorders if you're wondering)*
+*(and yes, i am nuerodivergent and part of a system if you could not tell)*
 
 ![tumblr_eab1009dc939399c5148cf1bdc867968_772316e3_640](https://github.com/user-attachments/assets/768ada6b-306c-4649-81ad-282a50330f44)
 
